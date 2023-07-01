@@ -1,7 +1,7 @@
 # 看簧片-猛片-日本-国产-最新地址发布-永久发布地址:sunglasses:
 :heart: :point_right: 【APP下载地址】 ：	http://mgys.vip
 ------
-:heart: :point_right: 【所有资源免费】 ： http://down.finedatal.ink
+:heart: :point_right: 【免费资源】 ： http://down.finedatal.ink
 ------
 :heart: :point_right: 【高清资源】 ：
 ------
